@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RaceTruck1050
-- 👀 I’m interested in ...make society and life more enjoyable also making $Money$ securing children's future
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in ..inhance the human mind and abilitys. .make society and life more enjoyable also making $Money$ securing children's future
+- 🌱 I’m currently learning ...and have learned ive got some projects started but can't find them. 
 - 💞️ I’m looking to collaborate on ...what's needed 
 - 📫 How to reach me ...lrife5065@gmail.com or 5708670889
 
